@@ -1,4 +1,4 @@
-# 
+# Enhance Final Cut Pro for macOS with automatic Final Cut Pro for macOS Effect | voice-enhancement + multi-cam-editing, the #1 effect. Includes voice-enhancement and
 
 
 
